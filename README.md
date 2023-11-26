@@ -4,8 +4,6 @@ Normal IT guy who follows two domains
 
   “A Smooth Sea Never Made a Skillful Sailor”
 
-and
-
   “We look special because we master the basics”
   
   
