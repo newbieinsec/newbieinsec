@@ -1,4 +1,4 @@
-👋 Hi, I’m @newbieinsec
+👋 Hi,
 
 Normal IT guy who follows two domains
 
